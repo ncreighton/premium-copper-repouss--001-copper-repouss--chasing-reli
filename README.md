@@ -1,0 +1,2 @@
+# premium-copper-repouss--001-copper-repouss--chasing-reli
+Tired of your copper repoussé pieces looking flat and amateurish, despite hours of hammering? This studio transforms your frustration into dimensional, gallery-quality relief.  The Copper Repoussé &amp; Chasing Relief Metalwork Studio bridges the gap between basic technique and professional mastery. It provides a systematic workflow, from design transf
